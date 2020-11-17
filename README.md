@@ -1,6 +1,6 @@
 ### Hola 👋, Mi nombre es Nicolás Nahuel Cosentino
 #### Technical Support || Developer Trainee
-![Technical Support || Developer Trainee](https://fotografias.antena3.com/clipping/cmsimages02/2019/09/12/94B2C09E-3D86-40DE-B124-460FDCAD0467/69.jpg)
+![Technical Support Sr. || Developer Trainee](https://fotografias.antena3.com/clipping/cmsimages02/2019/09/12/94B2C09E-3D86-40DE-B124-460FDCAD0467/69.jpg)
 
 Me gusta el trabajo en equipo, soy creativo, critico, con capacidad de adaptación y estoy en continuo aprendizaje.
 
